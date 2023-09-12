@@ -1,5 +1,4 @@
-### Hi there 👋
-
+![cute-lil-pirates-banner-made-in-paint](https://github.com/COKAIZOKU/COKAIZOKU/assets/121916621/252cf036-f874-420c-a8ed-4ac5c43dd01f)
 <!--
 **COKAIZOKU/COKAIZOKU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
